@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/4deb4dfa-e95a-4b01-9389-468e1ec894bd)
+![Beige   Brown Simple Personal LinkedIn Banner (1)](https://github.com/user-attachments/assets/2aadbfd4-3252-4c7a-afb7-776555b27a53)
+
 
 <h2 align="center">Hi 👋! My name is Aya AbuKharma <br> I'm a computer systems engineering<br>from Palestine</h2>
 
